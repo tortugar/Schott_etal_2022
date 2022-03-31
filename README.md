@@ -1,2 +1,2 @@
-# Schott_etal_2022
+# Schott_et_al_2022
  
